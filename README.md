@@ -1,1 +1,1 @@
-# Terasound We provide opportunity.
+# Terasound
